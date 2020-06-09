@@ -7,3 +7,7 @@ This study investigated...
 We did found absolutely nothing.
 
 #References
+
+Figure 1
+
+:)
